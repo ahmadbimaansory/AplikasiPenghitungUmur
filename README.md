@@ -1,1 +1,1 @@
-# C-Users-BIMA-OneDrive-Documents-NetBeansProjects-LatihanPenghitungUmur
+Latihan 2 - Ahmad Bima Ansory (2310010568)
